@@ -1,0 +1,1 @@
+Hello guys! This is a lame project that I am currently working on. It is the opposite of a ToDo List App and I the reason that I am making this is that ToDo apps are lame and overrated. Anyway Dale my laboohbooh this is for you blep.
